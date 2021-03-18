@@ -4,5 +4,5 @@
 ### ○太田博三 (放送大)
 
 ### D9:含意・言い換え(2) 　　3月18日(木) 14:00-15:30   32会議室／Zoom　　座長: 大内啓樹(理研)
-
+### https://www.anlp.jp/nlp2021/program_online/pdf_dir/D9-4.pdf
 ### https://www.anlp.jp/nlp2021/program.html#D9-4
